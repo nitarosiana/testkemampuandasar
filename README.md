@@ -1,0 +1,2 @@
+# testkemampuandasar
+latihan
